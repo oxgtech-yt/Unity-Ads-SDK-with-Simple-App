@@ -47,3 +47,5 @@
 
 </body>
 </html>
+<img width="1376" height="768" alt="How to Create Unity Ads Account   Earn Up to $10 Daily - Step-by-Step Tutorial" src="https://github.com/user-attachments/assets/2041f136-2a3c-4e85-9979-6c19c93b0f3c" />
+
